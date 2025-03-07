@@ -1,0 +1,2 @@
+# NFT-Airdrops
+MINT
